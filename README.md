@@ -1,1 +1,1 @@
-![image](https://media.discordapp.net/attachments/1349704115990695947/1349706150911676488/lv_0_20250313173000.gif?ex=67d4134e&is=67d2c1ce&hm=76aeed7ad1da7caf4a65b02bf25c45234024b8fe7c317e812a47ff8bb1dc2a01&)
+![Description of the GIF](https://i.ibb.co/yBS0hf9Z/lv-0-20250313173000.gif)
