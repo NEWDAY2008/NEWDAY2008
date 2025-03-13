@@ -1,1 +1,1 @@
-![image](https://i.ibb.co/C3Zzp0Nt/60-20250301091133.png)
+![image](/storage/emulated/0/Download/lv_0_20250313173000/lv_0_20250313173000.gif)
