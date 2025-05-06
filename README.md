@@ -1,2 +1,2 @@
 my ass is so fkin lazy oml
-[ERROR](https://i.ibb.co/2796WcBq/Screenshot-20250506-172328-1.jpg)
+[hi](https://i.ibb.co/2796WcBq/Screenshot-20250506-172328-1.jpg)
